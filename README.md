@@ -1,50 +1,62 @@
-# 👑 ²²⁷VIP Guilde Free Fire
+# ²²7VIP GUILDE 🔥
 
-Bienvenue sur le site officiel de la guilde **²²⁷VIP**.
-
-🎮 Nous sommes une équipe de joueurs passionnés de Free Fire.
-
----
-
-## 🔥 Membres de la guilde
-
-- kawaki227
-- yacine
-- VIP team
+Bienvenue dans la guilde **²²7VIP**.  
+Nous sommes une équipe de joueurs passionnés. 🎮
 
 ---
 
-## 📸 Photos de la guilde
+# 👑 Chef de Guilde
 
-![photo1](LIEN_DE_TA_PHOTO)
-![photo2](LIEN_DE_TA_PHOTO)
+![Chef](https://d.uguu.se/keCrHFvg.mp4)
 
----
+**Nom :** ²²7 Yacine  
+**ID :** 8915217044  
 
-## 🎬 Vidéos YouTube Free Fire
+📞 Numéro : +227 81 61 78 38  
 
-▶️ Gameplay de la guilde :
+🎵 TikTok :  
+https://www.tiktok.com/@yacin227
 
-https://www.youtube.com/watch?v=ID_VIDEO
+💬 Contact :
 
-▶️ Moments épiques :
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-Contacter-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/22781617838)
 
-https://www.youtube.com/watch?v=ID_VIDEO2
-
----
-
-## 💬 Groupe WhatsApp
-
-Rejoindre la guilde :
-
-https://chat.whatsapp.com/E5G94PLUcbnBaz5L6p9Z8h?mode=gi_t
+[![TikTok](https://img.shields.io/badge/TikTok-Profil-black?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@yacin227)
 
 ---
 
-## 💻 Projet du site
+# ⚡ Joueur
 
-Site sécurisé VIP avec mot de passe pour accéder aux contenus de la guilde.
+![Joueur](https://d.uguu.se/keCrHFvg.mp4)
+
+**Nom :** Kawaki227  
+**ID :** 7689336263  
+
+📞 Numéro : 22781289418  
+
+🎵 TikTok :  
+https://www.tiktok.com/@kawaki227
+
+💬 Contact :
+
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-Contacter-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/22781289418)
+
+[![TikTok](https://img.shields.io/badge/TikTok-Profil-black?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@kawaki227)
 
 ---
 
-site web by kawaki227
+# 🌍 Localisation
+
+🇳🇪 Niger
+
+---
+
+# 🎮 Jeu
+
+Free Fire 🔥
+
+---
+
+# ⭐ Rejoindre la guilde
+
+Si tu veux rejoindre **²²7VIP**, contacte-nous sur WhatsApp ou TikTok.
