@@ -9,7 +9,7 @@ Une équipe de joueurs **Free Fire** du 🇳🇪 Niger.
 
 # 👑 Chef de Guilde
 
-![Profil](https://d.uguu.se/keCrHFvg.mp4)
+![Profil](https://h.uguu.se/lprqALvM.jpg)
 
 **Nom :** ²²7 Yacine  
 **ID :** 8915217044  
