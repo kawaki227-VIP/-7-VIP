@@ -1,13 +1,15 @@
 # ²²7VIP GUILDE 🔥
 
-Bienvenue dans la guilde **²²7VIP**.  
-Nous sommes une équipe de joueurs passionnés. 🎮
+![Bannière Guilde](https://o.uguu.se/EGYrfENj.jpg)
+
+Bienvenue dans la guilde **²²7VIP** 🎮  
+Une équipe de joueurs **Free Fire** du 🇳🇪 Niger.
 
 ---
 
 # 👑 Chef de Guilde
 
-![Chef](https://d.uguu.se/keCrHFvg.mp4)
+![Profil](https://d.uguu.se/keCrHFvg.mp4)
 
 **Nom :** ²²7 Yacine  
 **ID :** 8915217044  
@@ -17,7 +19,7 @@ Nous sommes une équipe de joueurs passionnés. 🎮
 🎵 TikTok :  
 https://www.tiktok.com/@yacin227
 
-💬 Contact :
+### Contact
 
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-Contacter-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/22781617838)
 
@@ -27,7 +29,7 @@ https://www.tiktok.com/@yacin227
 
 # ⚡ Joueur
 
-![Joueur](https://d.uguu.se/keCrHFvg.mp4)
+![Profil](https://d.uguu.se/keCrHFvg.mp4)
 
 **Nom :** Kawaki227  
 **ID :** 7689336263  
@@ -37,7 +39,7 @@ https://www.tiktok.com/@yacin227
 🎵 TikTok :  
 https://www.tiktok.com/@kawaki227
 
-💬 Contact :
+### Contact
 
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-Contacter-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/22781289418)
 
@@ -46,17 +48,15 @@ https://www.tiktok.com/@kawaki227
 ---
 
 # 🌍 Localisation
-
 🇳🇪 Niger
 
 ---
 
 # 🎮 Jeu
-
 Free Fire 🔥
 
 ---
 
 # ⭐ Rejoindre la guilde
 
-Si tu veux rejoindre **²²7VIP**, contacte-nous sur WhatsApp ou TikTok.
+Si tu veux rejoindre **²²7VIP**, contacte-nous sur **WhatsApp ou TikTok**.
